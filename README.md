@@ -1,1 +1,0 @@
-# pulsivo.github.io
